@@ -1,2 +1,1 @@
-- 👋 Hi, I’m @charinthink
-- Welcome to B1ackEye: (https://suffixapp.tech)
+- 👋 Hi, I’m Por
